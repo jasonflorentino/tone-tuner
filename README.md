@@ -5,5 +5,5 @@ And while I know I could just buy a tuner or something, why would I do that when
 Clicking on buttons plays the tone.  
 If you're on mobile, make sure your phone is not on silent...
 
-Happy tuning,
+Happy tuning,  
 — Jason, Oct 16, 2021
